@@ -1,8 +1,7 @@
-# hello-world
-He told the boy, “The nails were your bad temper and they were hammered on people.
-You can remove the nails but the holes in the fence will remain. The fence will never look the same.
-It has scars all over. Some nails cannot even be pulled out. 
-You can stab a man with a knife, and say sorry later, but the wound will remain there forever.
-Your bad temper and angry words were like that! Words are more painful than physical abuse! Use words for good purposes. 
-Use them to grow relationships.
-Use them to show the love and kindness in your heart!”
+# hello-world’ve seen an ad for this watch for kids and it looks really neat! I think David would be able to really utilize it and follow the commands, but Luke may be a little too young for it. I’m keeping it pinned on Pinterest so I can refer back to it around Christmastime!
+
+I shared some of my favorite fall staples on the blog last week!
+
+I love a slip on sneaker in the fall and winter, these look like great simple options at a great price!
+
+I wrote a post reflecting on some things I learned this past summer. I tried to think of things that affected me/changed me as a person instead of only as a wife and mother. Both of the latter things are such a wonderful and huge part of me but I think it’s also important not to lose sight of what makes you tick as a person.
